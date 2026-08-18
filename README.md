@@ -10,4 +10,8 @@
 
 [![GitHub Roast](https://ghfind.com/api/card/m1cxzfw3q?theme=dark&variant=path)](https://ghfind.com/u/m1cxzfw3q?ref=badge)
 
-<img width="1920" height="1040" alt="video" src="https://github.com/m1cxzfw3q/m1cxzfw3q/blob/main/Video_26081906020.mp4" />
+
+
+https://github.com/user-attachments/assets/36881ff8-784d-486b-9e34-172c1a7fe8bc
+
+
